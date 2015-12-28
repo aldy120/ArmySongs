@@ -1,6 +1,8 @@
 # ArmySongs
 2209T 104R4BWPN
 
+## [playlist](https://www.youtube.com/playlist?list=PL21hW8gesA0fyr8E3OBybnXaumM8w-IdB)
+
 [陸軍軍歌](https://www.youtube.com/watch?v=yLmWDxc950g)
 
 [我們的事業在戰場](https://www.youtube.com/watch?v=jEcJM-9MJDY)
